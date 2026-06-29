@@ -1,4 +1,4 @@
-# 
+# Elite dydx trading bot extensions for Mac OS | Ultimate dydx trading bot extensions for PC Windows. Featuring momentum analysis and dex liquidity pools — optimized for maximum performance.
 
 
 
